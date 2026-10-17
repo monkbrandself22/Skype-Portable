@@ -223,4 +223,4 @@ Skype Portable is offered as a full free version with all features unlocked and 
 Don't miss out on the convenience and flexibility of Skype Portable. **Download it now and stay connected wherever you are!**
 
 ---
-**Last updated:** 2026-10-16 22:23:59 UTC
+**Last updated:** 2026-10-17 00:57:37 UTC
